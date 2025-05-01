@@ -5,7 +5,7 @@ If this is not being done live or you liked to read the instructions please clic
 
 ## Grace Foreman Tina Gao
 
-- Heart rate looks like a cos fuction
+- geometry is sexy
 
 ## Partner Name Here
 
