@@ -7,6 +7,6 @@ If this is not being done live or you liked to read the instructions please clic
 
 - geometry is sexy
 
-## Partner Name Here
+## Leah Morvay
 
-- Your sentence here
+- I have 5 cats and two older brothers >w< <3
