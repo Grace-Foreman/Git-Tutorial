@@ -5,7 +5,7 @@ If this is not being done live or you liked to read the instructions please clic
 
 ## Grace Foreman Tina Gao
 
-- IAMTHELEADPROGRMAEROFAALLGIRLSTEAM
+- I am the lead programmer of an all girls team!
 
 ## Partner Name Here
 
