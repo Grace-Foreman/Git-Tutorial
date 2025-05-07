@@ -7,6 +7,6 @@ If this is not being done live or you liked to read the instructions please clic
 
 - I am the lead programmer of an all girls team!
 
-## Partner Name Here
+## Mira
 
-- Your sentence here
+- I have a cat named Broccoli
