@@ -7,6 +7,10 @@ If this is not being done live or you liked to read the instructions please clic
 
 - I have a twin
 
+## SECOND FUN FACT
+
+- I am a life guard
+
 ## Partner Name Here
 
 - Your sentence here
